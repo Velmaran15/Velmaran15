@@ -1,5 +1,5 @@
 
-## 👋 Hi there, I'm Vel Maran
+## 👋 Hi there, I'm Velmaran
 
 🌐 Web Developer | 🧩 Problem Solver | 🚀 Always Learning
 
